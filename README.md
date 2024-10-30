@@ -11,7 +11,7 @@ I am passionate about technology and driven by a strong desire for continuous le
 I'm always open to collaborating on innovative and cutting-edge tech projects. If you're working on something exciting or want to discuss new ideas, feel free to connect!
 
 ### 📫 Contact Me:
-- Email: [hanangh694@gmail.com](mailto:hanangh694@gmail.com)
+- Email: [hananalghamdi443@gmail.com](mailto:hananalghamdi443@gmail.com)
 - LinkedIn: [Hanan Alghamdi](https://www.linkedin.com/in/hanan-alghamdi-907680230/)
 
 Let's innovate together!
